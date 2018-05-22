@@ -1,2 +1,2 @@
 # Hello-World
-Just a litle bit of nothing XD
+It's Gabo, seeing if I can lear a new skill.
